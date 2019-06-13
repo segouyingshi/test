@@ -2,7 +2,7 @@
 ## ‼️长按复制到浏览器里面访问网址‼️
 ## ⭐️ 👉 官方色狗APP免费下载 ：https://www.lanzous.com/i4ivs7i/
 ## ⭐️ 👉 色狗官网（推荐）：http://www.segou.org/  {若不能访问可开启翻墙VPN}
-## ⭐️ 👉 色狗综合站 ：http://www.gzddcw.cn/
+## ⭐️ 👉 51色狗综合站 ：http://www.51segou.com/
 ## ⭐️ 👉 色狗①号站 ：http://35segou.top/
 ## ⭐️ 👉 BT磁力下载 ：http://www.zczzzz.com/
 ## ⭐️ 👉 大学生直播 ：（正在开发中）
