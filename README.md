@@ -1,9 +1,9 @@
 ![image](https://github.com/segouyingshi/test/blob/master/%E6%88%91%E4%BB%AC%E8%B4%9F%E8%B4%A3%E6%94%B6%E9%9B%86%E3%80%82%E4%BD%A0%E4%BB%AC%E8%B4%9F%E8%B4%A3%E8%A7%82%E8%B5%8F%20%E5%B0%B1%E5%A5%BD.jpg)
 ## ‼️长按复制到浏览器里面访问网址‼️
-## ⭐️ 👉 色狗最新（推荐）：http://www.52segou.top
-## ⭐️ 👉 官方色狗APP免费下载 ：https://www.lanzous.com/i4y3mng
+## ⭐️ 👉 色狗最新（推荐）：http://www.segouw.com
+## ⭐️ 👉 官方色狗APP免费下载 ：https://www.lanzous.com/i51f9yj
 ## ⭐️ 👉 色狗官网（推荐）：http://www.segou.org {若不能访问可开启翻墙VPN}
-## ⭐️ 👉 51色狗综合站 ：http://www.50segou.top
+## ⭐️ 👉 51色狗综合站 ：http://www.50segoucn.com
 ## ⭐️ 👉 BT磁力下载 ：http://www.zczzzz.com/
 ## ⭐️ 👉 大学生直播 ：（正在开发中）
 ## 🚥关注色狗不迷路🚥 QQ色狗②群：已满~
